@@ -2,4 +2,4 @@
 
 Stay tuned for more exciting updates.
 
-Authors: Victoria, Lauren
+Authors: Victoria, Lauren, Evian
