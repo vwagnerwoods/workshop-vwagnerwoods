@@ -2,4 +2,6 @@
 
 Stay tuned for more exciting updates.
 
-Authors: Victoria, Lauren, Evian, Squidward
+Authors: Victoria, Lauren, Evian
+
+Date: June 16th, 2020
